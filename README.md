@@ -34,8 +34,9 @@ First, put water in a large pot and add 1/2 tablespoon of salt. Then, bring to a
 + 1 gram fiber
 + and it's just 100 kcal
 
-![image](https://user-images.githubusercontent.com/62704534/78454220-6388aa80-769f-11ea-9186-4f060f3072e2.png)
 Bon appetit!
+
+![image](https://user-images.githubusercontent.com/62704534/78454220-6388aa80-769f-11ea-9186-4f060f3072e2.png)
 
 
 ## Tarif
@@ -65,8 +66,9 @@ biberi yumuşayana kadar kavurun. Sonra, sosu tavaya ekleyin. Son olarak, onu 5-
 + 1 gram lif
 + ve sadece 100 kalori
 
-![image](https://user-images.githubusercontent.com/62704534/78454220-6388aa80-769f-11ea-9186-4f060f3072e2.png)
 Afiyet olsun!
+
+![image](https://user-images.githubusercontent.com/62704534/78454220-6388aa80-769f-11ea-9186-4f060f3072e2.png)
 
 
 
