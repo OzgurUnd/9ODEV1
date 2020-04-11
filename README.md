@@ -64,7 +64,7 @@ biberi yumuşayana kadar kavurun. Sonra, sosu tavaya ekleyin. Son olarak, onu 5-
 + 3 gram protein
 + 2 gram yağ 
 + 1 gram lif
-+ ve sadece 100 kalori
++ ve sadece 100 kalori!
 
 Afiyet olsun!
 
